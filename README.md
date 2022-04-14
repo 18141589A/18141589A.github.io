@@ -17,3 +17,5 @@ I love this place. It's my safehaven. It's a place where I don't feel pressured 
 
 I went back to train again in Taekwondo after 3-4 years. 
 
+I can still feel how nervous and anxious I was while walking to the gym of University of Nueva Caceres. I didn't know what to expect. I knew there would be new people, new faces, new training ground, and new training routine but it would be my first time seeing and experiencing them. I'm a curious and friendly individual but interacting with unfamiliar people tickles my nerves at times especially when our interaction is/becomes awkward (the uncomfortable atmosphere chips off some of my confidence). I'm still up for making new friends but there are times when awkwardness pushes me to mission abort.
+
