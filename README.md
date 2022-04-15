@@ -1,4 +1,4 @@
-# The First Step Out of My Comfort Zone
+# A Step Out of My Comfort Zone
 *By Sophia Marie R. Necesario - April 14, 2022*
 
 ### Ah ~ Comfort Zone
