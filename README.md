@@ -1,7 +1,7 @@
 # A Step Out of My Comfort Zone
 *By Sophia Marie R. Necesario - April 14, 2022*
 
-### Ah ~ Comfort Zone
+### What is it?
 
 `Comfort Zone` - a place where we feel **safe** and by the word, **comfortable**.
 
