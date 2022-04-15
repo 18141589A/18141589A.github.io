@@ -11,7 +11,7 @@ I love this place. It's my safehaven. It's a place where I don't feel pressured 
 
 *But it changed when I trained again.*
 
-### February 7, 2022 
+### Comfort Zone 1: Just the Familiar
 
 ![alt text](https://i.pinimg.com/564x/2b/a7/e2/2ba7e29bccac75466bc47f4e9f090f51.jpg)
 
