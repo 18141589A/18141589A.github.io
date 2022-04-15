@@ -82,4 +82,4 @@ Before this blog ends, these are pictures of me and most of the team 🥰
 ![received_371247764887777](https://user-images.githubusercontent.com/102715034/163579426-d7786fe8-7e89-481c-8ce6-e1ee3b366207.jpeg)
 ______________________________________________________________________________________________________
 
-> If you want to contact me, you can message me here: [`Facebook`](https://www.facebook.com/profile.php?id=100010817953662)
+> You can reach me at:  [`Facebook`](https://www.facebook.com/profile.php?id=100010817953662)
